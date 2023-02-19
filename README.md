@@ -1,1 +1,1 @@
-# Thesis [PhD Presentation_Sadakova_Sylvia_12022021.pdf](https://github.com/sylviasadakova/Thesis/files/10777157/PhD.Presentation_Sadakova_Sylvia_12022021.pdf)
+# Ph.D. Thesis: [BANK PROFITABILITY, SOLVENCY AND RISK IN THE CONTEXT OF STRESS TESTS, PAYOUT POLICY AND BANK COST STRUCTURES](https://github.com/sylviasadakova/Thesis/files/10777157/PhD.Presentation_Sadakova_Sylvia_12022021.pdf)
